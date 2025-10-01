@@ -1,1 +1,2 @@
-# i-have-to-be-a-monster
+# I Have To Be A Monster
+Xiao Qiu, qui protège discrètement l’humanité par sa propre force, est incompris de tous. Ayant connu une vie de dépression, avec sa renaissance, il s’est engagé sur la voie d’un monstre sans sang et sans larmes. « Sauver la race humaine, qu’est-ce que ça a à voir avec l’humanité ».
